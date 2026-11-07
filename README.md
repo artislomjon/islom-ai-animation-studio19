@@ -1,0 +1,1 @@
+# islom-ai-animation-studio19
